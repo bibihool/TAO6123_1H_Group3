@@ -1,1 +1,1 @@
-sic a niga dik
+suc a niga dik
